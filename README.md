@@ -1,1 +1,0 @@
-# nyaypaksh_SIH
